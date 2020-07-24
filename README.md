@@ -1,4 +1,4 @@
-![michael](https://tenor.com/bcZDF.gif)
+![michael](https://media1.tenor.com/images/eaf3216545b07507c8dd6c694c58ad18/tenor.gif?itemid=15450865)
 
 <!--
 **amandafdal/amandafdal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
